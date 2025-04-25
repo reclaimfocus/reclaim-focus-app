@@ -1,5 +1,5 @@
 # Reclaim Focus
-# Privacy Policy for [Your App Name]
+# Privacy Policy for Reclaim Focus
 
 **Effective Date:** [Date - e.g., October 26, 2023]
 
