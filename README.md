@@ -1,7 +1,7 @@
 # Reclaim Focus
 # Privacy Policy for Reclaim Focus
 
-**Effective Date:** [Date - e.g., October 26, 2023]
+**Effective Date:** [Date - April 25 2025]
 
 ## 1. Introduction
 
